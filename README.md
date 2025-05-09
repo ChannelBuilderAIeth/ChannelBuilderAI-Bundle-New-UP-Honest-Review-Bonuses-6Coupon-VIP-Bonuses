@@ -6,6 +6,80 @@
 <p class="ds-markdown-paragraph">No filming. No editing. No complex scripts. Just <strong>AI-generated story videos</strong> that <strong>YouTube’s algorithm LOVES.</strong></p>
 <p class="ds-markdown-paragraph">If you’ve ever dreamed of running a <strong>hands-off online business</strong>, this might be the <strong>easiest way to make it happen.</strong></p>
 
+# 📺 ChannelBuilderAI – Full Funnel + Massive Bonus Vault 🎁
+
+## 🔥 ChannelBuilderAI Bundle Deal (SAVE $209)  
+💡 Get ChannelBuilderAI Commercial + ALL Upgrades for a Low One-Time Payment  
+💸 Use Coupon Code: **FACELESS** for an extra $50 OFF  
+Type in your browser:  
+`jvz7[dot]com/c/672499/417531`
+
+---
+
+## 🔹 ChannelBuilderAI Front-End (FE)  
+Type: `jvz7[dot]com/c/672499/417529`
+
+---
+
+## 💼 FastPass & MegaPass Options
+
+- **FastPass (SAVE $209): All Upgrades, One Payment**  
+  Type: `jvz2[dot]com/c/672499/417533`
+
+- **MegaPass: Everything Unlocked**  
+  Type: `jvz1[dot]com/c/672499/417549`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: ChannelBuilderAI Gold**  
+  Type: `jvz1[dot]com/c/672499/417535`
+
+- **OTO 2: ChannelBuilderAI Elite**  
+  Type: `jvz6[dot]com/c/672499/417537`
+
+- **OTO 3: ChannelBuilderAI Enterprise**  
+  Type: `jvz6[dot]com/c/672499/417539`
+
+- **OTO 4: ARMagic**  
+  Type: `jvz3[dot]com/c/672499/417541`
+
+- **OTO 5: Voiclet**  
+  Type: `jvz3[dot]com/c/672499/417543`
+
+- **OTO 6: Voicely**  
+  Type: `jvz8[dot]com/c/672499/417545`
+
+- **OTO 7: AIOffices**  
+  Type: `jvz8[dot]com/c/672499/417547`
+
+---
+
+## 🎁 Check Bonus Page  
+View your exclusive bonuses here:  
+`williamreview[dot]com/channelbuilderai`
+
+---
+
+## 💥 Bonus Vault Access  
+🌟 **5,000+ Mega Bonuses – Value Over $2,976,749**  
+Unlock here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase via any link above.
+2. Email your **receipt ID** to: `support@williamreview[dot]com`
+3. Confirm your email, and get **ALL bonuses within 12 hours**.
+
+---
+
+✅ **Affiliate ID Check**  
+At checkout, ensure it says:  
+**Affiliate: 672499 – William Johnson**
 
 <hr />
 
@@ -119,3 +193,77 @@
 
 <h3><strong>🚀 Click Here to Get ChannelBuilderAI Before Price Increases</strong></h3>
 <p class="ds-markdown-paragraph"><strong>P.S.</strong> Use coupon code <strong>"FACELESS"</strong> for <strong>$50 OFF the bundle!</strong> 🚀</p>
+# 📺 ChannelBuilderAI – Full Funnel + Massive Bonus Vault 🎁
+
+## 🔥 ChannelBuilderAI Bundle Deal (SAVE $209)  
+💡 Get ChannelBuilderAI Commercial + ALL Upgrades for a Low One-Time Payment  
+💸 Use Coupon Code: **FACELESS** for an extra $50 OFF  
+Type in your browser:  
+`jvz7[dot]com/c/672499/417531`
+
+---
+
+## 🔹 ChannelBuilderAI Front-End (FE)  
+Type: `jvz7[dot]com/c/672499/417529`
+
+---
+
+## 💼 FastPass & MegaPass Options
+
+- **FastPass (SAVE $209): All Upgrades, One Payment**  
+  Type: `jvz2[dot]com/c/672499/417533`
+
+- **MegaPass: Everything Unlocked**  
+  Type: `jvz1[dot]com/c/672499/417549`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: ChannelBuilderAI Gold**  
+  Type: `jvz1[dot]com/c/672499/417535`
+
+- **OTO 2: ChannelBuilderAI Elite**  
+  Type: `jvz6[dot]com/c/672499/417537`
+
+- **OTO 3: ChannelBuilderAI Enterprise**  
+  Type: `jvz6[dot]com/c/672499/417539`
+
+- **OTO 4: ARMagic**  
+  Type: `jvz3[dot]com/c/672499/417541`
+
+- **OTO 5: Voiclet**  
+  Type: `jvz3[dot]com/c/672499/417543`
+
+- **OTO 6: Voicely**  
+  Type: `jvz8[dot]com/c/672499/417545`
+
+- **OTO 7: AIOffices**  
+  Type: `jvz8[dot]com/c/672499/417547`
+
+---
+
+## 🎁 Check Bonus Page  
+View your exclusive bonuses here:  
+`williamreview[dot]com/channelbuilderai`
+
+---
+
+## 💥 Bonus Vault Access  
+🌟 **5,000+ Mega Bonuses – Value Over $2,976,749**  
+Unlock here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase via any link above.
+2. Email your **receipt ID** to: `support@williamreview[dot]com`
+3. Confirm your email, and get **ALL bonuses within 12 hours**.
+
+---
+
+✅ **Affiliate ID Check**  
+At checkout, ensure it says:  
+**Affiliate: 672499 – William Johnson**
